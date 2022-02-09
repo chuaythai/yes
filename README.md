@@ -1,2 +1,3 @@
 # yes
-for educational purpose 
+OwO
+UwU
